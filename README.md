@@ -24,8 +24,21 @@ prueba de envio de codigo y de screenshot
 8. 
 ![image](https://github.com/user-attachments/assets/511d46fa-d58d-4c0c-9145-f101504a64a4)
 ![image](https://github.com/user-attachments/assets/537f2a55-ecbb-4077-a3cd-d44fd4b879b8)
-
-
+9. 
+![image](https://github.com/user-attachments/assets/a13501dc-b812-45c2-953c-311b40e9f18e)
+![image](https://github.com/user-attachments/assets/0fa276a6-a1b2-4ce3-aae8-1237ec450cce)
+10. 
+![image](https://github.com/user-attachments/assets/cb7b86b8-05a5-4a00-967a-382d6431aef8)
+![image](https://github.com/user-attachments/assets/0b8b4bb2-22f6-473b-9acd-94818e45e2d1)
+11. 
+![image](https://github.com/user-attachments/assets/dc220875-6559-446a-868d-c08b137d945f)
+![image](https://github.com/user-attachments/assets/ed258a26-1462-410e-994c-71eb90f960a7)
+12.
+![image](https://github.com/user-attachments/assets/0755f677-1236-4c54-b70a-d774e93282e3)
+![image](https://github.com/user-attachments/assets/0caa605f-9f4b-41e2-9183-801bcd53cc49)
+13. 
+![image](https://github.com/user-attachments/assets/c4b0ee86-518a-4642-85b4-5838257b0d3d)
+![image](https://github.com/user-attachments/assets/693699f4-d6c9-47d8-ac38-fef50235a038)
 
 
 
