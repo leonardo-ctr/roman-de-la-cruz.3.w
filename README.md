@@ -39,6 +39,9 @@ prueba de envio de codigo y de screenshot
 13. 
 ![image](https://github.com/user-attachments/assets/c4b0ee86-518a-4642-85b4-5838257b0d3d)
 ![image](https://github.com/user-attachments/assets/693699f4-d6c9-47d8-ac38-fef50235a038)
+14. 
+![image](https://github.com/user-attachments/assets/05407af4-b413-486d-b1b8-0d6d34305a74)
+![image](https://github.com/user-attachments/assets/7bbfc809-9c43-42c8-820e-42bc15c9057b)
 
 
 
